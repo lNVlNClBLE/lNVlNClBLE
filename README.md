@@ -13,5 +13,5 @@ together we are thanosuu team!
 https://rentry.co/verycoolomegaverse
 <p align="center"
   
-check out our omegaverse au lol..
+check out our omegaverse au made by my [brother](https://github.com/seong-gihun)..CRYING
 <p align="center"
