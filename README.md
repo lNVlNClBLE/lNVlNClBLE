@@ -10,4 +10,8 @@ together we are thanosuu team!
 ![](https://files.catbox.moe/olc835.jpg)
 <p align="center"
 
-![](DIV)
+https://rentry.co/verycoolomegaverse
+<p align="center"
+  
+check out our omegaverse au lol..
+<p align="center"
