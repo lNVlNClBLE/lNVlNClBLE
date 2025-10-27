@@ -1,4 +1,6 @@
-  ![](DIV)
+<p align="center"
+  
+  ![](https://64.media.tumblr.com/418724bd2a3b8e510e0fd65ecb41b182/592f017f9ec193a3-a2/s400x600/5f00e58cebfcdea4a15209cbb078b7230efeca59.pnj)
   <p align="center"
     
 
@@ -8,3 +10,9 @@
  <p align="center"
 
 ![](https://64.media.tumblr.com/9d04afc88d10d0c429d2f51151ee7f3c/592f017f9ec193a3-50/s1280x1920/83de40ca22e1fa017acdaf0156257ceea6edc8e5.gifv)
+<p align="center"
+
+![](https://64.media.tumblr.com/418724bd2a3b8e510e0fd65ecb41b182/592f017f9ec193a3-a2/s400x600/5f00e58cebfcdea4a15209cbb078b7230efeca59.pnj)
+<p align="left"
+  
+[cr](https://www.tumblr.com/huohhuo/790943455495979008/herrscher-of-rebirth-seele) 
